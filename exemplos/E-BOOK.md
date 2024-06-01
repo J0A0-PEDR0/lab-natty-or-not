@@ -15,8 +15,7 @@ Utilizei o "ChatGPT" para revisar minha pesquisa sobre IAs Generativas, estrutur
 O e-book apresenta um conteúdo envolvente e visualmente rico, demonstrando como as IAs Genativas podem ser uma ferramenta poderosa na educação e na disseminação do conhecimento.
 
 
-[O mercado Imobiliário](https://github.com/user-attachments/files/15523559/Sem.titulo.1.odt)
-
+LINK PARA O E-BOOK AQUI
 
 
 ## 💭 Reflexão[Uploading Sem título 1.odt…]()
